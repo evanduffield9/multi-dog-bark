@@ -3,3 +3,4 @@
 ![413099167-3dfe4265-1fdc-4bf0-814e-efc6eb99ef71](https://github.com/user-attachments/assets/cdb07707-c639-437d-b969-b95d9b1d8f72)
 ![dg6m855-cac7f3ed-aa75-4f99-ad39-8ceb416d5fba](https://github.com/user-attachments/assets/298f3775-d5c7-45a0-99ce-71ec4f731a13)
 ![12](https://github.com/user-attachments/assets/18926a23-c971-48d1-b539-466c2814ef76)
+![Best-Small-Dog-Breeds-Maltese](https://github.com/user-attachments/assets/8562d6c0-2544-416c-aac9-87b5f860d40a)

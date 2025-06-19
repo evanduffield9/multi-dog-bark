@@ -22,3 +22,18 @@ Maltese read
   found
 
   belly
+
+hall
+    found
+
+    cleric 
+
+    ahead 
+
+          room 
+          hc a  oomt eio inoa inosgd opinas piogp inoaspi dgoopin asgpi op isk lka ;;kl na;kln an;k lskn l;
+
+          ha 
+          c j a i eiio room 
+          ahjc    e op opme op eoppom [epom[ [ moptabl;e 
+          anc j  d

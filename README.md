@@ -1,3 +1,8 @@
+set
+   dog
+
+   index
+
         Best-Small-Dog-Breeds
         
         compile

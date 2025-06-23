@@ -46,9 +46,9 @@
           c j a i eiio room 
           ahjc    e op opme op eoppom [epom[ [ moptabl;e 
           anc j  d
-table 
-     connect 
-     ha 
+      table 
+           connect 
+           ha 
 
      ha
        union 
